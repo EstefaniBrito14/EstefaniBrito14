@@ -1,0 +1,5 @@
+- 👋 Hi, I'm @EstefaniBrito14
+- 👀 I'm interested in learning about technology!
+- 🌱 I'm learning code for programming!
+- 💞️ I'm looking to collaborate in favor of more knowledge about programming!
+- 📫 How to reach me @brito.stephany@escola.pr.gov.br
